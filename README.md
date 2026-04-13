@@ -2,7 +2,7 @@
 - 👀 I’m interested in investing to technology
 - 🌱 I’m currently owning a software development company
 - 💞️ I’m looking to collaborate on streaming services, escrow, cloud communication,fintech, biometrics and e-commerce
-- 📫 How to reach me check me on WhatsApp 255788414577
+- 📫 How to reach me check me on WhatsApp 254111252521
 
 <!---
 AndersonMwaizinga/AndersonMwaizinga is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
